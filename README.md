@@ -1,4 +1,4 @@
-![image](https://github.com/user-attachments/assets/6ea6b94f-8f79-4d07-8203-c9b20bc70f5e)![image](https://github.com/user-attachments/assets/2e0674a9-937d-47d2-8159-7798fa6fb0a0)
+[image](https://github.com/user-attachments/assets/2e0674a9-937d-47d2-8159-7798fa6fb0a0
 
 **INTRODUCTION**
 
